@@ -6,7 +6,7 @@ status
 
 **INGREDIENTES**:
 
-- 3 cenouras Médias
+- 4 cenouras Médias
 
 - 1 colher de café
 
