@@ -8,8 +8,6 @@ status
 
 - 4 cenouras Médias
 
-- 1 colher de café
-
 - 4 ovos
 
 - 1 xicara (chá) de óleo
