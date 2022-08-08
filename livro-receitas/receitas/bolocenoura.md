@@ -6,7 +6,10 @@ status
 
 **INGREDIENTES**:
 
-- 4 cenouras Médias;
+
+=======
+
+- 3 cenouras Médias;
 
 - 4 ovos
 
